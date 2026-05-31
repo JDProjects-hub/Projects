@@ -1,1 +1,0 @@
-L&T Financial Model
